@@ -1,6 +1,6 @@
-# XATANICAL BAILEYS 
+# VINZ WHATSAPP BAILEYS 
 <p align='center'>
-  <img src="https://files.catbox.moe/csi162.png" width="540">
+  <img src="https://d.top4top.io/p_3615qg2ah1.jpg" width="540">
 </p>
 
 --- 
